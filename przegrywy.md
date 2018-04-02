@@ -8,8 +8,8 @@ Pamiętaj - przede wszystkim - że Mirko (nie WYKOP co istotne i do czego wróc�
 No ale ja chciałem tylko zaznaczyć, że to specyficzna grupa xD
 
 ### Skąd narzekania
-#### Kto nie narzeka
-Zwróć uwagę, że "brak czasu" = brak aktywności w necie = jakieś życie = obcowanie ze społeczeństwem itd. Albo takie osoby nie mają się gdzie pożalić, albo ich "charakter" sprawia, że nie mają na co narzekać.
+#### Kto NIE narzeka
+Zwróć uwagę, że "brak czasu" = brak aktywności w necie = jakieś życie = obcowanie ze społeczeństwem itd. Albo takie osoby chcą ale nie mają się gdzie pożalić lub nie mają czasu, albo ich "charakter" sprawia, że nie mają na co narzekać bo żyją...
 
 Posłuchaj tego... Z Lilą słuchamy tekiego artysty - Korteza. Gra melancholijne piosenki typu "Zostań", "To dobr moment" (żeby się rozstać itp.). Gość ma jednak aparycję ziomka co pod blokiem opierdala cię z komórki :) Często go pytają: czemu takie smuty? Nagraj coś wesołego. On na to: 
 
