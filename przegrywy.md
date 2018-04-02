@@ -35,3 +35,5 @@ Piszesz:
 
 Pareto to chyba raczej: "5% z Mirkowych spierdolin generuje 95% przy swoich żaleniach się". Reszta pewnie bez plusów leży w piwnicy z podciętymi zyłami xD (wink wink nudge nudge)
 
+#### Mirko ≠  Wykop (wykopalisko)
+Do premyślenia: Chyba każdy zna Wykop. Mirko nie każdy. Patrz na gorące na WYKOPIE. Są tam żale? Nie bo: inna mechanika ale też moze inni ludzie bardziej odp. przekrojowi społ. w PL.
