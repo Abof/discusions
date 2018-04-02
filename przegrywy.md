@@ -15,15 +15,17 @@ Posłuchaj tego... Z Lilą słuchamy tekiego artysty - Korteza. Gra melancholijn
 
 > "... Jak jestem "wesoły" to zyję. Nie mam czasu. Nie myślę o śpiewaniu bo to dla mnie forma terapii/żalenia się. Jak mam doła to wtedy siadam, biorę gitarę i przelewam to na papier"
 
-... ciekawe ale zwróć uwagę na negatywne komantarze produktów na necie. Ja kilka napisałem ale tylko jak yłem NIEZADOWOLONY :) Zadko kiedy znajdziesz szczere pochalne peany :)
+... ciekawe ale zwróć uwagę na negatywne komantarze produktów na necie. Ja kilka napisałem ale tylko jak byłem NIEZADOWOLONY :) Rzadko kiedy znajdziesz szczere pochalne peany :)
+
+Może na Mikro jest tego dużo bo tak jak ja - używam Mikro do pytania i ktoś mnie może nazwać "debilem bo tylko pyta i pyta" tak - może są osoby, które jak już piszą to jak mają doła i może to większość dlatego takie tamty wypływają. A reszta kontentu to pareto - kilka nordowych Mirków ;)
 
 #### Styl pisania + plusy
-Zwróć uwagę też na styl. Narzekania na Mirko można podzielić na dwa nurty: albo komuś jest naprawdę źle (rodzia pije/długi) i jest to na Anominowych wrzucane i spotyka się z empatią albo... Jest napisane "mikro" stylem i gypsem, który jest jednak... komediowy raczej a nie tragiczny xD Dlaczego o tym mówię? Bo taki zgrabny tekst łapie plusym, a jeżel wierzyć OP to jest to dla niego jedyne pocieszenie i każdy jest zadowolony. Ciekawiej jest jednak nie wierzyć OP bo... wtedy od razu stwierdzasz, że "takie pisanie jest popularne".
+Zwróć uwagę też na styl. Narzekania na Mirko można podzielić na dwa nurty: albo komuś jest naprawdę źle (rodzia pije/długi) i jest to na Anominowych wrzucane i spotyka się z empatią albo... Jest napisane "mikro" stylem i grypsem, który jest jednak... komediowy raczej a nie tragiczny xD Dlaczego o tym mówię? Bo taki zgrabny tekst łapie plusy, a jeżel wierzyć w tregedię OP-a to jest to dla niego pocieszenie i każdy jest zadowolony. Ciekawiej jest jednak nie wierzyć w tregedię OP-a bo... wtedy od razu stwierdzasz, że "takie pisanie jest popularne".
 
-P.S. Inny wątek: Patrz na standupy gdzie często są szczere gadki o powaznych problemach standupowców (gruby, łysy, nie zaliczy) i jest to forma terapii - walki z rzeczywistością, jej oswajania i publika to lubi (za: Ricky Gervais 'Humanity'). 
+P.S. Inny wątek: Patrz na standupy gdzie często są szczere gadki o powaznych problemach standupowców (gruby, łysy, nie zaliczy) i jest to forma terapii - walki z rzeczywistością - jej oswajania i publika to lubi bo sama ma problemy (za: Ricky Gervais 'Humanity'). 
 
 ##### Dlaczego "takie pisanie jest popularne"
-No bo kurwa luczie lubią czytać o niepowodzeniach innych. "Dlaczego? Udowodnij!". Dowód przez zaprzeczenie (?) : Ludzie nie lubią ideałów bo stawia ich to w złym świetle i przypomina i wytyka ich nipowodzenia (oczywiście w ich głowach; sam w sobie ideał to... ideał :) (za: Peterson "Meaning of.." z 2017).
+No bo kurwa ludzie lubią czytać o niepowodzeniach innych. "Dlaczego? Udowodnij!". Dowód przez zaprzeczenie (?) : Ludzie nie lubią ideałów bo stawia ich to w złym świetle i przypomina i wytyka ich niepowodzenia (oczywiście w ich głowach; sam w sobie ideał to... ideał :) (za: Peterson "Meaning of.." z 2017). Negacja: tragedie - jednak cieszą (sam  tak trochę mam - moje mroczne miejsce charakteru).
 
 Poza tym ludzie chcą pomóc. A znasz tekst "on chciał dobrze" gdy np. ojciec ciśnie dziecko aby lepsze wyniki miało. No to czytasz taką spierdolinę i go jedziesz bo może czujesz, że mu to pomoże bo nie zakładam, że jest to czysta nienawiść. A jak napiszesz to chcesz plusy a jak chcesz plusy to plusujesz wpis itp...
 
